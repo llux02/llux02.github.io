@@ -9,7 +9,7 @@ Lukas is currently a second year at Cal Poly as a chemistry major. Currently joi
 
 ### Extra info
 
-In his free time Lukas enjoys playing the piano, spending time with his dogs, and sepdning time with his friends.
+In his free time Lukas enjoys playing the piano, spending time with his dogs, and spending time with his friends.
 
 ### Contact me
 
